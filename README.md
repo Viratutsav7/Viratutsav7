@@ -20,7 +20,7 @@
 📫 How to reach me:
 - Email: utsavkr.official@gmail.com  
 - LinkedIn: [Utsav Kumar](https://www.linkedin.com/in/utsav-kumar-91b865310)  
-- GitHub: [github.com/yourusername](https://github.com/Viratutsav7)
+- GitHub: [github.com/Viratutsav7](https://github.com/Viratutsav7)
 
 ---
 
